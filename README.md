@@ -6,8 +6,4 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-<!---
-goshalainfo/goshalainfo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-google-site-verification=_6gu_gUtmWHTiZ0ixfFdKQz619lDTWLuIGuJ1rHSKWg
+< www.derveshpurgoshala.us.to >
